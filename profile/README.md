@@ -1,4 +1,4 @@
-![gofree banner](https://github.com/GoFree-Inc/.github/blob/main/profile/1628340380614.jpeg)
+![Klas banner](https://github.com/Klas-Inc/.github/blob/main/profile/Screenshot%202022-07-17%20at%2017.12.43.png)
 
 
 
