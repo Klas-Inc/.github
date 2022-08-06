@@ -1,4 +1,4 @@
-![Klas banner](https://github.com/Klas-Inc/.github/blob/main/profile/Screenshot%202022-07-17%20at%2017.20.51.png)
+![1648474749063](https://user-images.githubusercontent.com/53378089/183265990-e5ed95e0-8d31-4f12-9620-52e28f482ad6.jpeg)
 
 ## Klas - Live Learning Technology
 
